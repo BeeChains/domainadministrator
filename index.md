@@ -2,6 +2,8 @@
 
 [![image](https://user-images.githubusercontent.com/37987346/101999396-a37e4380-3caa-11eb-8cc6-e61fb53c7855.png)](http://shapereality.innerinetcompany.hns.to/)
 
-Thank You for your interest in [HNS-DOMAINS/](http://home.hns-domains/) please see [InnerINetCompany/](https://innerinetcompany.carrd.co/)
+
+
+# At [Inner I Net Company](http://shapereality.innerinetcompany.hns.to/), our Mission is the expression of the "I" in every Individual.
 
 - contact [bthespirit777](mailto:bthespirit777@protonmail.com)
