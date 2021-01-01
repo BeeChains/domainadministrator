@@ -5,5 +5,3 @@
 
 
 # At [Inner I Net Company](http://shapereality.innerinetcompany.hns.to/), our Mission is the expression of the "I" in every Individual.
-
-- contact [bthespirit777](mailto:bthespirit777@protonmail.com)
